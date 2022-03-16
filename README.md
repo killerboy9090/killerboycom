@@ -1,5 +1,4 @@
 # papa-birthday.com
-shai pakde hai
 <br>
 ravi nagar
 <br>
